@@ -9,5 +9,3 @@ Margarita flore
 Hola chiquitines 
 
 peter parke
-
-san jacobo
